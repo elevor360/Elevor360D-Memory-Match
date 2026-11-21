@@ -1,0 +1,1 @@
+Upload these files to a GitHub Pages repository. Open online once before playing offline. No accounts or tracking. Dinosaur theme includes prehistoric adventure objects. Mixed theme combines all themes.
